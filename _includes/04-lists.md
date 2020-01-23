@@ -1,1 +1,12 @@
-Replace this with a list of your favorite things.
+1. Pirate talk
+   - Blarg
+   - Bleagh!
+   - Argh!
+   
+2. Death metal
+    - Squeel
+    - Bleagh!
+    - Oooh!
+    - Ahhhhhhhhhhhhhh!
+    
+    
